@@ -6,5 +6,5 @@ Resistanc Safe Houses
   Parkville VIC 3010 (03) 9035 3410
 
 
-* The Green: St Columbs st, Hawthorn, Vic 3122
+* The Green: 5 St Columbs st, Hawthorn, VIC 3122 (03) 9819 0890
 
